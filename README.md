@@ -7,5 +7,5 @@
 - 💬 Ask me about: Maps
 - 📫 How to reach me: nakul.info@gmail.com
 - 😄 Pronouns: Him/His
-- ⚡ Fun fact: Ilove dimsums
+- ⚡ Fun fact: I love dimsums
 
